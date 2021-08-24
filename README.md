@@ -27,7 +27,7 @@
 各行业数据从业人员有经验有opening的manager和seniors
 
 ### Prizes:
-参与奖：$5 Target Gift card （参与者需按时完成Problems to Solve的至少第一题，且无抄袭问题）
+参与奖：$5 Target Gift card （参与者需按时完成Problems to Solve的至少第一题，且无抄袭问题）   
 优胜奖（2位）：$50 Target Gift Card, 根据本人情况匹配社区资深从业人士进行1小时的Career Consulting Session
 
 ### Promotion:
